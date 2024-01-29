@@ -12,7 +12,7 @@ My name is Artur Gauzer and I am a software developer 🌴
 
 [Gist](https://gist.github.com/antimech)
 
-[Telegram Channel](https://t.me/antimech666)
+[Telegram Channel](https://t.me/antimech_qz)
 
 [Instagram](https://www.instagram.com/antimech)
 
